@@ -1,1 +1,1 @@
-b24-74usry.bitrix24.com/video/uxePhbWR
+bitrix24.com/video/uxePhbWR
